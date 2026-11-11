@@ -1,4 +1,4 @@
-## 🚀 Garry-e-o-Colapso-da-Terra-3
+## 🚀 Garry & o Colapso da Terra-3
 
 ## 🚦 Running The Project
   1- Open this google drive ---> [LINK](https://drive.google.com/file/d/1O6XQWdGKrbGLQZxtc0yz7VnwThPtXvN7/view?usp=drive_link) <---  
